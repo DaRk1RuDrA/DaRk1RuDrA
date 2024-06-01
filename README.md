@@ -2,7 +2,7 @@ Dark Here
 I am your darkest fear that can ever exist
 I know everything even your bank PIN
 So better stay away from me 
-I don't need to do anay collaboration 
+I don't need to do any collaboration 
 You can't reach me
 Call me sir 
 Stay away from my sister and you are safe
